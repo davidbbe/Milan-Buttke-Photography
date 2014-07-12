@@ -1,2 +1,0 @@
-Milan-Buttke-Photography
-========================
